@@ -7,7 +7,7 @@ Hi ok you can call me kaveh/seb/alfred [andothernames](https://pronouns.cc/@kave
 
 [fluffle](https://fluffle.cc/vocaioid) | [ata](https://pennywaynes.atabook.org/) | [neocities](https://thebutlersdesk.neocities.org/) | [straw](https://kavehkisser.straw.page/)
 
-pony town's alfred pennyworth [@Ponytowns-rewards](https://github.com/Ponytowns-rewards). Thank you!
+pony town's alfred pennyworth [@Ponytowns-rewards](https://github.com/Ponytowns-rewards), pony town's tuxedo cat [@animal-town](https://github.com/animal-town). Thank you!
 
 ---
 
